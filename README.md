@@ -1,1 +1,0 @@
-# xebia-day1
